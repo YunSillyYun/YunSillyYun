@@ -1,6 +1,4 @@
-<img width="2876" height="3041" alt="1848" src="https://github.com/user-attachments/assets/3578bfb8-13e0-4c3d-8e21-a309015ab91a" />
-
-happy Valentine's day! 💌 dont forget to treat your valentines well~^^
+![1856](https://github.com/user-attachments/assets/87c27e1e-0ef6-4435-92b3-354f5dd60b16)
 
 
 ![1818](https://github.com/user-attachments/assets/2daf697b-96ab-4d12-9d98-b32b28776fc6)
