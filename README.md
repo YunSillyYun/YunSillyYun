@@ -1,14 +1,7 @@
-![1856](https://github.com/user-attachments/assets/87c27e1e-0ef6-4435-92b3-354f5dd60b16)
+SHE / HER 
 
-. . . (⁠ ⁠◜⁠‿⁠◝⁠ ⁠)⁠♡ >
+18+ DNI (with exceptions)
 
-![1818](https://github.com/user-attachments/assets/2daf697b-96ab-4d12-9d98-b32b28776fc6)
+remaking straw page and github readme, sign my ata!
 
-+18 dni -11 dni
-
-she/her
-
-HONG LU'S WIFE WITH A SECRET AFFAIR WITH HIS BROTHER
-
-N HARMONIA/ ARCEUS lover
-https://www.youtube.com/shorts/80WZpSQoXb8 << more yun content, go support my friend!
+![2766](https://github.com/user-attachments/assets/1de4c622-b0e4-49bf-a16e-9f1a8253ff7b)
