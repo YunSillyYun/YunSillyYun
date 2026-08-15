@@ -1,7 +1,2 @@
-SHE / HER 
-
-18+ DNI (with exceptions)
-
-remaking straw page and github readme, sign my ata!
-
-![2766](https://github.com/user-attachments/assets/1de4c622-b0e4-49bf-a16e-9f1a8253ff7b)
+<img width="650" height="300" alt="4701" src="https://github.com/user-attachments/assets/f18176cd-077c-4337-8bcf-b2de2476cacf" /> 
+<img width="650" height="300" alt="4700" src="https://github.com/user-attachments/assets/1c5976da-0bc5-43fe-bb88-f4f3d450a55e" />
