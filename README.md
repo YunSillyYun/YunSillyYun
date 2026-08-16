@@ -8,7 +8,9 @@ YUN ! >⁠.⁠<
 ╰┈➤ panromantic bisexual , gemini ,
 
 
-heavy inspo off my ponies is fine , but , please don't copy!
+• heavy inspo off my ponies is fine , but , please don't copy!
+
+• please c+h or int! I don't bite (pinky promise >⁠.⁠<)
 
 
 ♡ - https://github.com/VIL-ILY (my bsf!!)
