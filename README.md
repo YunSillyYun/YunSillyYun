@@ -3,6 +3,18 @@
 
 YUN ! >⁠.⁠<
 
-╰┈➤ minor , she/her , pt-br , eng & spanish | 18 DNI 
+╰┈➤ minor , she/her , pt-br , eng & spanish | 18 & -12 DNI 
+
+╰┈➤ panromantic bisexual , gemini ,
 
 
+heavy inspo off my ponies is fine , but , please don't copy!
+
+
+♡ - neo (my bsf!!)
+
+────୨ৎ────
+
+⋆. 𝜗ৎ˚ CHECK STRAWPAGE !! ⋆. 𝜗ৎ˚
+
+× I love vodyanitsa & Yunli ~
