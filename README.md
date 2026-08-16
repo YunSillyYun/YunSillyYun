@@ -10,7 +10,7 @@ YUN ! >⁠.⁠<
 
 • heavy inspo off my ponies is fine , but , please don't copy!
 
-• please c+h or int! I don't bite (pinky promise >⁠.⁠<)
+• if I'm alone, please c+h or int! I don't bite (pinky promise >⁠.⁠<) but please don't approach me if I have DNI on my name .⁠·⁠´⁠¯⁠`⁠(⁠>⁠▂<⁠)⁠¯⁠`⁠·⁠.
 
 
 ♡ - https://github.com/VIL-ILY (my bsf!!)
